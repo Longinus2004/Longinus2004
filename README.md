@@ -1,1 +1,2 @@
-<img width="2047" height="420" alt="#Nekopara" src="https://github.com/user-attachments/assets/7a30e457-7dea-4aa8-bc2b-8000ef5a8f52" />
+<img width="736" height="414" alt="Miyuki Sone _ Totono_you and me and her" src="https://github.com/user-attachments/assets/a317dc04-61e2-4bdb-b0a3-9e4e1fe1f033" />
+
